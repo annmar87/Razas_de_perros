@@ -33,3 +33,17 @@ Según la Federación Cinológica Internacional, los distintos tipos de razas de
 
 - Grupo 10 Lebreles: Entre los que encontramos al Galgo, Whippet, Afgano, Saluki, Borzoi, Lebrel Irlandés, etc.
 
+En mi opinión, los perros son lo mejor, y si quieres adoptar un perrito, no lo elijas porque sea bonito, elígelo por sus características y evalúa si sus necesidades son compatibles con tu estilo de vida.
+
+Aquí les muestro unas fotos, mucha suerte y feliz día.
+
+![Pastor aleman](https://pamipe.com/wiki/wp-content/uploads/2022/09/Pastor-Aleman-3.jpg "Pastor Aleman")
+
+![ pastor shetland](https://nfnatcane.es/blog/wp-content/uploads/2020/05/pareja-de-perros-Pastor-de-Shetland-en-el-campo.jpg  "Pastor Shetland")
+![rotweiler](https://www.bunko.pet/__export/1642547664627/sites/debate/img/2022/01/18/15_caracteristicas_que_te_indican_que_un_perro_rottweiler_americano_es_original.jpg_172596871.jpg "Rotweiler")
+![schnauzer](https://www.bunko.pet/__export/1643394808640/sites/debate/img/2021/03/27/schnauzer-miniatura-caminando_crop1616869212281.jpeg_172596871.jpeg "Schnauzer")
+![san bernardo](https://www.bunko.pet/__export/1628013928232/sites/debate/img/2021/08/03/san_bernardo_bebes_crop1628013886841.jpeg_172596871.jpeg "San Bernardo")
+![Boyero de berna](https://www.infobae.com/new-resizer/1eRzAFy_kLL_-FaRxA8A5zgER3E=/768x432/filters:format(webp):quality(85)/cloudfront-us-east-1.images.arcpublishing.com/infobae/LC5MOYPX2JA25NY5H5KKMPREJI.jpg   "Boyero de Berna")
+![yorkshire](https://highlandcanine.com/wp-content/uploads/2021/05/yorkshire-terrier-sitting-on-decking-768x512.jpg "Yorkshire")
+![husky siberiano](https://i.pinimg.com/564x/92/7e/b6/927eb6951920e7662f4dd334afc0e21a.jpg "Husky Siberiano")
+
